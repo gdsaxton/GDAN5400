@@ -1,1 +1,1 @@
-Details coming soon.
+Details forthcoming.
